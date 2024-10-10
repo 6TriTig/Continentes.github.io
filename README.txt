@@ -1,0 +1,1 @@
+Esta pagina web solo fue creada con fines educativos de nuestros estudios, no se piensa hacer nada de capital o algún mal con ella.
